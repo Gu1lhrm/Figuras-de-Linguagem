@@ -1,0 +1,1 @@
+Esse trabalho sobre figuras de linguagem foi passado pela minha professora do ensino médio de Gramática, onde ela pediu para que nós elaborássemos um quiz, que tinham questões originais - mesmo que parafraseadas de vestibulares, provas e outros. 
